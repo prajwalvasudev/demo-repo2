@@ -11,3 +11,5 @@ now im become death,distroyer of worlds
 its not done yet 
 
 pal pal 
+
+im done right 
