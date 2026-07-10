@@ -7,4 +7,4 @@ its 2:31 am now
 some people lauged,some people cried but most of them were silent 
 now im become death,distroyer of worlds
 
- its not working and i'm not done yet 
+
